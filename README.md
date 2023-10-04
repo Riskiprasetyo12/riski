@@ -1,1 +1,4 @@
-# riski
+RISKI PRASETYO
+==============
+XII SIJA 1
+ABSEN 25
